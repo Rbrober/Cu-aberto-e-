@@ -1,0 +1,2 @@
+essa empresa foi formada para mostrar o enterrase de abrir o cu 
+hjksoeiejrbbcnxmzlskxjdnenrncncnxmxmxnxncjcuvhskskjefncncnkaoaooarihrbfnxnzkskdifjcncnxkskskdjfjfn
